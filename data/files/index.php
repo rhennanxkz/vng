@@ -1,0 +1,1 @@
+<meta HTTP-EQUIV="Refresh" CONTENT="0; URL=http://10s.asia">
